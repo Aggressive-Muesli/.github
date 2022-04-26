@@ -2,6 +2,10 @@
 
 We are about games lol.
 
+---
+
+![Frame 2 (1)](https://user-images.githubusercontent.com/5690519/165311616-a9145d1a-5571-4ede-8033-aa4de5f099ee.png)
+
 <!--
 
 **Here are some ideas to get you started:**
